@@ -1,0 +1,1 @@
+ASTOSCH Coin
