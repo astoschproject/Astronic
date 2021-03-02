@@ -1,1 +1,1 @@
-ASTOSCH Coin
+Astronic Coin
